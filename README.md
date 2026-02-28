@@ -23,4 +23,4 @@ Lista desordenada:
 
 [Página de GNU](https://www.gnu.org/home.es.html)
 
-![Somos Valle-Inclán]([https://www.diariodesevilla.es/sevilla/alertan-presencia-legionela-instituto-sevilla_0_2002586015.html](https://iesroqueamagro.eu/ies-ramon-del-valle-inclan/))
+![Somos Valle-Inclán](https://static.grupojoly.com/clip/5bfeac61-e344-4738-92c9-1d35e7120450_16-9-aspect-ratio_1600w_0.webp)
